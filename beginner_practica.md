@@ -25,7 +25,7 @@ We will focus on reinforcing the tango fundamentals in the class, rather than te
 
 ## Tango fundamentals
 We will focus on these topics every week. 
-* Social codes
+* Social codes & tango history
 * Connection & embrace
 * Walking & the tango music
 * Leading & following
