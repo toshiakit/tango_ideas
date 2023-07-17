@@ -30,7 +30,7 @@ We will focus on these topics every week.
 * Social codes & tango history
 * Connection & embrace
 * posture & stability
-* Walking & the tango music
+* Walking & music (tango)
 * Leading & following
 * Floor navigation
 
