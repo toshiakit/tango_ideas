@@ -29,6 +29,7 @@ More focus on learning and practicing than social dancing
 We will focus on these topics every week. 
 * Social codes & tango history
 * Connection & embrace
+* posture & stability
 * Walking & the tango music
 * Leading & following
 * Floor navigation
