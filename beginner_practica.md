@@ -1,21 +1,22 @@
 # Beginner-focused practica
 
 ## Event Overview
-We plan to offer this practica **on a three-month trial basis** in order to assess its value to the tango community
+We plan to offer this practica **on a three-month trial basis** in order to assess the interest in and value to the tango community
 * Working name: Guided practica with tango mentors
 * Goal: Provide an opportunity for beginners to practice class materials with peers and mentors in a fun, friendly environment.
 * Expectation: participants are expected to learn both roles
 * Principal mentors: Toby, WaiLing, Toshi, Emilen
 * Supporting mentors: TBD
-* Format: Pre-practica class (1 hour) + guided practica
+* Format: pre-practica class (1 hour) + guided practica
 * Frequency: every Thursday from 7:30 pm to 10:00 pm 
 
 ## Pre-milonga class 
 We will focus on reinforcing the tango fundamentals in the class, rather than teaching steps. 
 * Instructors: the lead instructor will be chosen from the principal mentors on a rotation basis and others assist
-* Participants: Intended for Intro and beginner students from Sunday and Tuesday classes, but open to the public 
-* To improve their understanding of the fundamentals, the participants are expected to do both roles.
-* If we have enough participants and instructors, we may split the class into two levels
+* Participants: Intended for Intro and beginner students from Sunday and Tuesday classes, but open to the public
+* The participants are expected to do both roles to improve their understanding of the fundamentals.
+* Less talking, more trying. The instructor will use exercises to encourage self-discovery from trial and error, rather than verbal instructions.   
+* If we have enough participants and mentors, we may split the class into two levels
 
 ## Guided practica
 * 3-song tandas with cortina in T-T-V-T-T-M format
