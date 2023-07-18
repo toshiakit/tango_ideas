@@ -46,7 +46,7 @@ The following topics may be covered when appropriate.
 * Molinete (Giro)
 
 ## Exercise ideas
-* Connect walking to music: introduce different orchestras (Di Sarli, D'Arienzo, Troilo, Pugliese, etc.) and how to match waking to the music, the importance of pauses - this can be solo exercises
+* Connect walking to music: introduce different orchestras (Di Sarli, D'Arienzo, Troilo, Pugliese, etc.) and how to match waking to the music, the importance of pauses - this can be solo exercises (solo dancing) as par Olga Basio
 * Connection exercise by Corina and Octavio.
   * What is the sensation you get when you establish a connection? How long does it take to establish a connection? Place your hand on the upper chest of your partner and try to move your partner side to side, forward and back. Can you maintain that sensation when you move around your partner? What does the partner need to do to maintain that sensation? What do you need to do to move together? Hint = you need to move your partner before you move. Can you find the same sensation when you change it to the practice embrace or tango embrace?
   * Finding the connection with the floor. Jump and land and see what your body does (the tailbone is out). What is the posture? How comfortable and stable do you feel?
