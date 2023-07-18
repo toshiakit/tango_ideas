@@ -22,9 +22,13 @@ We plan to offer this practica **on a three-month trial basis** in order to asse
   * If Toby and Wailing teach one week, Toshi and Emilen assist that week, and Toshi and Emilen teach next week as Tony and WaiLing assist.
   * This is meant to reduce the burden on principal mentors and learn from one another on instructions - what works and doesn't work, what changes we want to make. 
 * Participants: Intended for Intro and beginner students from Sunday and Tuesday classes, but open to the public
+  * Hopefully they bring questions and problems they faced during the class that we can use as materials
 * The participants are expected to do both roles to improve their understanding of the fundamentals.
-* We will focus on reinforcing fundamentals, not the steps. We will use exercises to encourage self-discovery from trial and error.   
+  * Often the problem becomes clearer if you see it from your partner's perspective. 
+* We will focus on reinforcing fundamentals, not the steps. We will use exercises to encourage self-discovery from trial and error.
+  * Less talking and more trying   
 * If we have enough participants and mentors, we may split the class into two levels
+  * Sometimes, it may be helpful to focus on certain class material the participants are struggling with.   
 
 ## Guided practica
 More focus on learning and practicing than social dancing
