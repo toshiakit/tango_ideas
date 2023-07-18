@@ -1,6 +1,6 @@
 # Beginner-focused practica
 
-Beginners learn new materials week after week in the class, but they need more time to practice and incorporate what they were taught because the class time is never sufficient to master the materials. For this reason, the focus should be on practica, rather than on the class, and the class should be about reinforcing the fundamentals. 
+Beginners learn new materials week after week in the class, but they need more time to practice and incorporate what they were taught because the class time is never sufficient to master the materials. For this reason, the focus should be on practica, rather than on the class, and the class should be about reinforcing the fundamentals. However, in most practicas, people just do social dancing rather than working on the materials. We hope to provide an opportunity for beginners to practice class materials with peers and mentors in a fun, friendly environment.
 
 ## Event Overview
 We plan to offer this practica **on a three-month trial basis** in order to assess the interest in and value to the tango community
@@ -13,7 +13,7 @@ We plan to offer this practica **on a three-month trial basis** in order to asse
 * Frequency: every Thursday from 7:30 pm to 10:00 pm (we may have planned cancellation in resource constraints)
 
 ## Pre-milonga class 
-**Focus on fundamentals, not the steps. Less time talking, more time trying.** 
+**Focus on fundamentals, not the steps. Less time talking, more time trying. Make the class interactive** 
 * Instructors: the lead instructor will be chosen from the principal mentors on a rotation basis and others assist
   * If Toby and Wailing teach one week, Toshi and Emilen assist that week, and Toshi and Emilen teach next week as Tony and WaiLing assist.
   * This is meant to reduce the burden on principal mentors and learn from one another on instructions - what works and doesn't work, what changes we want to make. 
@@ -44,3 +44,13 @@ The following topics may be covered when appropriate.
 * Cross-system
 * Ochos and pivots
 * Molinete (Giro)
+
+## Exercise ideas
+* Connect walking to music: introduce different orchestras (Di Sarli, D'Arienzo, Troilo, Pugliese, etc.) and how to match waking to the music, the importance of pauses - this can be solo exercises
+* Connection exercise by Corina and Octavio.
+  * What is the sensation you get when you establish a connection? How long does it take to establish a connection? Place your hand on the upper chest of your partner and try to move your partner side to side, forward and back. Can you maintain that sensation when you move around your partner? What does the partner need to do to maintain that sensation? What do you need to do to move together? Hint = you need to move your partner before you move. Can you find the same sensation when you change it to the practice embrace or tango embrace?
+  * Finding the connection with the floor. Jump and land and see what your body does (the tailbone is out). What is the posture? How comfortable and stable do you feel?
+  * Stand on one foot with eyes closed. How long can you stand?
+* Leading and following exercise by Paula and Lucas.
+  * In front of your partner, look towards your partner's chest (not on the floor), and propose the walk by using a circular motion (go backward to the floor to move forward, go forward to the floor to move backward). If you don't feel the proposal, don't move. 
+* and
