@@ -25,6 +25,7 @@ We plan to offer this practica **on a three-month trial basis** in order to asse
 ## Guided practica
 More focus on learning and practicing than social dancing
 * 3-song tandas with cortina in T-T-V-T-T-M format
+* Participants are expected to rotate partners for each tanda - no consecutive tandas with the same person.
 * Mentors will be available to answer questions, suggest exercises, and help with problem-solving.
 * Mentors will not dance with participants or other mentors for personal entertainment
 * Mentors will dance with the participants for mentoring purposes only (1 or 2 songs)
@@ -54,3 +55,5 @@ The following topics may be covered when appropriate.
 * Leading and following exercise by Paula and Lucas.
   * In front of your partner, look towards your partner's chest (not on the floor), and propose the walk by using a circular motion (go backward to the floor to move forward, go forward to the floor to move backward). If you don't feel the proposal, don't move. 
 * What does it mean to "arrive"? Corina de la Rosa's exercise - place your hand on the cheek on the side of your standing leg and take a step - notice the alignment of the hand and your new standing leg.
+* Social codes - We need to respect one another - Invite people to dance by cabeceo (so that people can reject without saying no). Once agreed, you are expected to dance for the whole tanda, but you can end a tanda early by saying "thank you" at the end of a song (no need to put up with a bad experience). Don't say thank you until the tanda is finished. Don't talk during a song. Report inappropriate behavior (even if you are not 100% sure) to the teachers or organizers.
+* Tango history & culture - Argentinians like to hug -> close embrace, is the norm. But not a tight squeeze, more a comfortable enclosing hug. Good embrace attracts more dances. Women couldn't go to milongas by themselves, and men had to practice among themselves until they were good enough to go to milonga. Tango almost died when rock became more popular. Old milongueros kept the tradition and inspired a new generation - Miguel Balmaceda, Pepito Avellaneda, Mingo Pugliese, Puppy Castello, Antonio Todaro, Tete Rusconi, Carlos Gavito, ... Then came tango nuevo - Gustavo Naveira, Fabian Salas and Chicho Frumboli - but now tango salon or villa Urquiza style is more common. However, people often associate tango with what they see on TV - that's stage tango and not social tango. 
