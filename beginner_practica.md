@@ -53,4 +53,4 @@ The following topics may be covered when appropriate.
   * Stand on one foot with eyes closed. How long can you stand?
 * Leading and following exercise by Paula and Lucas.
   * In front of your partner, look towards your partner's chest (not on the floor), and propose the walk by using a circular motion (go backward to the floor to move forward, go forward to the floor to move backward). If you don't feel the proposal, don't move. 
-* and
+* What does it mean to "arrive"? Corina de la Rosa's exercise - place your hand on the cheek on the side of your standing leg and take a step - notice the alignment of the hand and your new standing leg.
