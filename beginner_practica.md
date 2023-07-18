@@ -1,6 +1,10 @@
 # Beginner-focused practica
 
-Beginners learn new materials week after week in the class, but they need more time to practice and incorporate what they were taught because the class time is never sufficient to master the materials. For this reason, the focus should be on practica, rather than on the class, and the class should be about reinforcing the fundamentals. However, in most practicas, people just do social dancing rather than working on the materials. We hope to provide an opportunity for beginners to practice class materials with peers and mentors in a fun, friendly environment.
+Beginners learn new materials week after week in the class, but they need more time to practice and incorporate what they were taught because the class time is never sufficient to master the materials. For this reason, the focus should be on practicing, rather than giving yet more classes. 
+
+In most practicas, however, people just do social dancing rather than working on the materials. In order to provide the environment for learning and practicing. we plan to offer a pre-practica class that focuses on reinforcing the fundamentals. We believe many beginners remain very fuzzy about important concepts like connection to the partner, connection to the music, and understanding of the roles, and that slows down their learning. However, the fundamentals make the difference between the dancers people want to dance with vs. people tend to avoid. It is not about how many figures or adorns you can do. 
+
+We hope to provide an opportunity for beginners to practice class materials with peers and mentors in a fun, friendly environment.
 
 ## Event Overview
 We plan to offer this practica **on a three-month trial basis** in order to assess the interest in and value to the tango community
